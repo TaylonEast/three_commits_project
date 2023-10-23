@@ -1,2 +1,2 @@
-# Gitting More Practice
+# Three Commits Projects
 ## Taylon East
